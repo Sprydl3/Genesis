@@ -1,2 +1,2 @@
 # Genesis
-The first site on the new host
+Do not be afraid
